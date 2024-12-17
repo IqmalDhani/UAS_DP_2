@@ -5,7 +5,7 @@ Anggota:
 -David Jonathan Simanjuntak (241401121)
 
 Link Google Drive:
-https://drive.google.com/drive/u/1/folders/0APRqmgldWci2Uk9PVA
+https://drive.google.com/file/d/1FO1N9Hu77MW-KxQ-Bq4_AihEaUPbZvkm/view?usp=drive_link
 
 Link Youtube:
 https://youtu.be/lCQvePOeKL4
